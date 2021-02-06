@@ -1,2 +1,2 @@
 # hello-world
-Ez a nem semmi! :D
+A zen buddhista televízió férfibemondónője vagyok. Magasságom száááááz-hetvenegy centiiii uszkve. Mélységem... putty... putty...
